@@ -1,1 +1,1 @@
-www.welfare101.info
+www.mycalc.info
